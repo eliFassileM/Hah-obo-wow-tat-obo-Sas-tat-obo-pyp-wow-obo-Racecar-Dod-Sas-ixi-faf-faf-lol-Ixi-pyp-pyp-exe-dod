@@ -1,1 +1,1 @@
-Anagram palendrome analogy/ synonym so words letters do/don't flip/nonflip..a/ axa b/ bab c/cac d/Dod e/exe f/faf g/ gag h/ hah i/ ixi j/ Jaj k/ Kyk L/ lol m/ Mym n/ non o/ obo p/ pyp q/ Qaq r/ racecar s/ Sas t/ tat u/ uxu v/ Vav w/ wow x/ Xanax™ y/ yay z/ zaz
+Anagram palendrome analogy/ synonym so words letters do/don't flip/nonflip..a/ axa b/ bab c/cac d/Dod e/eqe f/faf g/ gag h/ hah i/ ixi j/ Jaj k/ Kyk L/ lol m/ Mym n/ non o/ obo p/ pyp q/ Qaq r/ racecar s/ Sas t/ tat u/ uxu v/ Vav w/ wow x/ Xanax™ y/ yay z/ zaz
